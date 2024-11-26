@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/fdb44cdb-827d-4827-973e-bf4d747e10eb)<br/>
+<br/>
 <p align="center">
     <samp>"Young passionate souls, waiting to be ignited"
     <br/>
